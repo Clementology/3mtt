@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on 3MTT project **3MTT**
 
-- 📫 How to reach me **clemetoaina@gmail.cm**
+- 📫 How to reach me **clemetoaina@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
